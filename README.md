@@ -191,7 +191,7 @@ To communicate insights effectively and validate findings using statistics.
 # 📽️ Final Presentation
 
 👉 presentation link 
-[Download / View Presentation]
+Linkedin:(https://www.linkedin.com/feed/update/urn:li:activity:7442600014305972224/?originTrackingId=p4%2BxsaUZ7VHfSpGL3K4yBw%3D%3D)
 
 ---
 
