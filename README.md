@@ -204,7 +204,7 @@ I am an aspiring Data Analyst passionate about extracting insights from data and
 # 📬 Connect With Me
 
 * LinkedIn: https://www.linkedin.com/in/sana-ansari-16b7a1323/
-* GitHub: 
+* GitHub: https://github.com/sanaansari-786
 
 ---
 
